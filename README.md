@@ -5,6 +5,8 @@
  
  I have decided to expand upon my readme. There is much to read.
  
+ Actually Connie Nielsen sucks
+ 
  SECOND DRAFT
 
 								October 22, 1998
