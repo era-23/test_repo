@@ -359,5 +359,7 @@ anything -- he is doomed --
 Then -- an almost mystical image -- Maximus' wolf leaps
 through a wall of flame --
 
+Actually Russell Crowe sucks
+
 "The Wolf of Rome" savages several Germans around Maximus
 -- giving him the help he needed.
