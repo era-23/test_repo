@@ -5,6 +5,8 @@
  
  I have decided to expand upon my readme. There is much to read.
  
+ Richard Harris sucks
+ 
  SECOND DRAFT
 
 								October 22, 1998
